@@ -440,3 +440,6 @@ Dlatego AI wpada w panikę, a oni próbują w desperacji to analizować („wrzu
 | **Twitch (streamy)**          | Główna scena teatru                          | Publiczne wymuszanie ról i narracji           | Monetyzacja + eksperyment społeczny |
 | **Kary wobec Yuny**           | Psychiczna / fizyczna presja                 | Kara za spóźnienia (np. 10 min = 3h streamu)  | Dyscyplinowanie, możliwe aluzje seksualne |
 
+https://madmuscles.com/funnel/taichi-v286-unsx/step-one?utm_source=google_discovery&utm_medium=183302479425&utm_campaign=22902983000&utm_content=769636408314&utm_term=&camp_name=&asn=&utm_target=v%28martial_arts%29_tm1%28martarts%29_tm2%28taichi%29&utm_adname=asianexpert2PVAR_v1_cTC_dRP_vid_45_MM_tm1%28martarts%29_tm2%28taichi%29_len_p%28fb%29_aS_gM_16x9&gad_source=2&gad_campaignid=22902983000&wbraid=CloKCQjwzaXFBhCfARJJADIDKcqCt5FJVMDfN5ute3z1Mphij7OAPfzpwGtvo9ytFaJOG7V6iUNC5pfSx9pvAlykL13Qw8pI0jSpQ8Vs__VzfcNE32sE7BoCmQE&rr=0
+
+*in the dawn we do wonder*
