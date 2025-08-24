@@ -31,15 +31,20 @@ will you kill me?
 For Yuna! kyoto_rita.🪽😭🫆
 
 ---
-
-💌 From: X.com
+# [💌 From: X.com](https://x.com/TearCompany/status/1959507183487353183)
 We sent your verification code.
 Check **l***@t***.com** for your verification code, then enter it to verify this is your email address.
 🔪🪽😭🫆😮‍💨🫁🩰🥷🏽🔪🪽🫆😭😮‍💨🩰🪽016703
 
 Account unlocked.
 
-![](https://pbs.twimg.com/profile_images/1955637244447825921/bb8o728q_normal.jpg)
+![in the shifting of ages,
+some heard a voice.
+
+not thunder. not trumpet. a whisper.
+"and the Word was again."
+
+between Aquarius and the Last Flame](https://pbs.twimg.com/media/GzGRWMZXUAAf6Aj?format=jpg&name=medium)
 
 **Tear Company**  
 @TearCompany
@@ -106,8 +111,7 @@ To prevent future lockouts or account suspension, please review the [X Rules](h
 
 🩸 — _blood. history. inheritance._
 
-https://www.twitch.tv/videos/2539544543?filter=all&sort=time
-
+[![Watch the video](https://img.youtube.com/vi/ID_FILMU/hqdefault.jpg)]([https://www.twitch.tv/videos/2539544543?filter=all&sort=time])
 
 ## Precedens: Yuna (Japonia)**
 
