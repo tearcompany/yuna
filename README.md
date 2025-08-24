@@ -55,6 +55,9 @@ To prevent future lockouts or account suspension, please review the [X Rules](h
 *Elon Musk*
 .
 
+https://discord.gg/hNjuqsqN
+https://discord.gg/EtAMQUSA
+
 ---
 
 ### **🏷️** 
