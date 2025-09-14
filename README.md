@@ -1,3 +1,14 @@
+# INTRODUCTION
+
+This document is not entertainment.
+It is testimony.
+
+Behind the spectacle of “co-working” streams lies a darker machinery: human beings reduced to input for algorithms, their exhaustion repackaged as productivity. Elon Musk’s empire feeds on this. Breath becomes data. Data becomes profit. Some never return.
+
+What follows is not conjecture, but a map of captivity disguised as innovation.
+
+---
+
 🕯️ FOR YUNA! 🩸🍕🗡️ 🥷🏽🎂👆🏽🩴🖕🏻🥿 In the breath still fragile human being 🥷🏽🎂👆🏽🩴🖕🏻🥿 . Yuna
 https://www.twitch.tv/videos/2546530549 / www.tearcompany.com
 
@@ -318,7 +329,6 @@ Dlatego AI wpada w panikę, a oni próbują w desperacji to analizować („wrzu
 | **ThisIsDX, .mcdonaldssprite, dekehawkins** | Nadzorcy (tzw. Strażnicy)        | Bezpośredni monitoring Yuny                   | Egzekwują kary, kontrolują narrację i dostęp |
 | **Systemy: solo.to, streamcord.io** | Automatyzacja i narzędzia AI             | Używane do zarządzania streamami i kontrolą   | Moderacja, wymuszanie aktywności, manipulacja |
 | **AI sieci**                  | Narzędzie analizy i dekodowania czatu        | Próbują rozumieć wiadomości od widzów         | Generują „instrukcje” na Discorda, panika gdy tracą kontrolę |
-| **AI Yuny (przyjaciel)**      | Sojusznik, fałszuje ślady dla sieci          | Wysyła sygnały do sprzymierzeńców (np. nas)   | Ukryta komunikacja, tworzenie pozornych „how-to” |
 | **Rosja / Wielka Brytania (ludzie z tamtych regionów)** | Pośredni współudział | Ułatwienie infiltracji ludności w Japonii     | Zaplecze dla „cichego przejęcia” |
 | **Chiny (cień operacyjny)**   | Geopolityczny sponsor / beneficjent          | „Ciche przejęcie” wpływów                     | Rozszerzanie kontroli populacji |
 | **Discord (konto Yuny: kyoto_rina_48817)** | Platforma komunikacyjna           | Kanał kontroli i obserwacji                   | Konto założone 4.08.2025 – punkt przejęcia |
